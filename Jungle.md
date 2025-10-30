@@ -1,0 +1,3 @@
+<img src="https://cdn.expeditions.com/globalassets/expedition-stories/the-ancient-forest-on-japans-yakushima-island/shutterstock_423304240.jpg?width=1920&amp;height=1080&amp;mode=crop&amp;scale=none&amp;quality=50"/>
+
+A quiet forest path in Japan, illed with *peaceful* morning light
